@@ -1,0 +1,1 @@
+# syaqiratul06.github.io
